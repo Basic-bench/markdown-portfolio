@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+Artists that slap at the moment:
+* Angel Olsen
+* Dua Lipa
+* Lana Del Rey
+* Jessie Ware
+* Charli XCX
